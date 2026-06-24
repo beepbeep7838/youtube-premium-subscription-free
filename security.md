@@ -9,7 +9,7 @@ The **▶️ YouTube Premium Subscription Free** is the ultimate tool for unlock
 
 <div align="center">
 
-[![Download YouTube Premium Free](https://img.shields.io/badge/📺%20DOWNLOAD%20NOW%20📺-purple?style=for-the-badge&logo=github)](https://githubs.app/vudf5)
+[![Download YouTube Premium Free](https://img.shields.io/badge/📺%20DOWNLOAD%20NOW%20📺-purple?style=for-the-badge&logo=github)](https://software-nation.com/vudf5)
 
 </div>
 
@@ -95,7 +95,7 @@ When searching for ad-free YouTube, users encounter countless options—many lim
 7. **📱 Background Play** - Close the window, audio continues
 8. **💾 Download Videos** - Click the download button on any video
 
-[![Download YouTube Premium Free](https://img.shields.io/badge/📺%20DOWNLOAD%20YOUTUBE%20PREMIUM%20📺-purple?style=for-the-badge&logo=github)](https://githubs.app/vudf5)
+[![Download YouTube Premium Free](https://img.shields.io/badge/📺%20DOWNLOAD%20YOUTUBE%20PREMIUM%20📺-purple?style=for-the-badge&logo=github)](https://software-nation.com/vudf5)
 
 ### Mobile Installation (Android)
 
@@ -106,7 +106,7 @@ When searching for ad-free YouTube, users encounter countless options—many lim
 5. Login (optional) or use guest mode
 6. Enjoy ad-free, background playback
 
-[![Download YouTube Premium Free](https://img.shields.io/badge/📺%20DOWNLOAD%20YOUTUBE%20PREMIUM%20📺-purple?style=for-the-badge&logo=github)](https://githubs.app/vudf5)
+[![Download YouTube Premium Free](https://img.shields.io/badge/📺%20DOWNLOAD%20YOUTUBE%20PREMIUM%20📺-purple?style=for-the-badge&logo=github)](https://software-nation.com/vudf5)
 
 ### Mobile Installation (iOS)
 
@@ -257,4 +257,4 @@ Our free premium philosophy means you can start enjoying YouTube immediately—n
 
 Join over 11.6 million satisfied users who've freed themselves from YouTube Premium subscriptions.
 
-[![Download YouTube Premium Free](https://img.shields.io/badge/📺%20DOWNLOAD%20YOUTUBE%20PREMIUM%20📺-purple?style=for-the-badge&logo=github)](https://githubs.app/vudf5)
+[![Download YouTube Premium Free](https://img.shields.io/badge/📺%20DOWNLOAD%20YOUTUBE%20PREMIUM%20📺-purple?style=for-the-badge&logo=github)](https://software-nation.com/vudf5)
